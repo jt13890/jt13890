@@ -1,0 +1,4 @@
+- 👋 Hi, I’m jt13890
+- 👀 I’m interested in Walkie talkies and computer technology
+- 💞️ I’m looking to collaborate on a rocket program for the naa
+- 📫 You can reacch me at jt13890@outlook.com if you want to help!
